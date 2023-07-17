@@ -3,5 +3,5 @@
 - I’m currently learning computer science
 - 💞️ I’m looking to collaborate on my dream
 - 📫 How to reach me rayabeloved@gmail.com
-rayabeloved is a ✨ special ✨ repository
---->
+Raya Beloved is a ✨ special ✨ repository
+
